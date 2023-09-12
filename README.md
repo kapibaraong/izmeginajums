@@ -1,0 +1,2 @@
+# izmeginajums
+kkads izmeginajums
